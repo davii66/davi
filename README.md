@@ -1,7 +1,7 @@
 # davi
 
 
-……………〈XP模块〉 ………………………………………
+……………〈XP模块〉 ……………………………………
 
 小米净化： https://www.lanzoui.com/b00tyatha 
 微X模块 ： https://www.lanzoui.com/b00tujq4j 
